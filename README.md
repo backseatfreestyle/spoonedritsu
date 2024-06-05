@@ -1,4 +1,11 @@
-![among-us-ritsu-kageyama](https://github.com/spoonedritsu/spoonedritsu/assets/171537461/2588a000-8378-4c3f-8fb3-8fc234cc5471)
+![mob-psycho-100-kageyama-shigeo](https://github.com/spoonedritsu/spoonedritsu/assets/171537461/9df762b6-7847-4862-b42b-e74914bc4048)
 
 HI IM RITSU this is my 2nd alt my main is @velocicoaster and my other alt is @andrewrannells
 
+im often at market / jjk area , pathway to spawn , or hunting for clovers or something idk
+
+c+h is fine with me ! idm if u cover me either
+
+if u wanna int i suggest whispering cus im mostly always offtab or doing something irl
+
+dni : basic dni , ranfren , homestuck , hazbin hotel / helluva boss , DOT EYED SKINS. , irls , overly sensitive people , 
