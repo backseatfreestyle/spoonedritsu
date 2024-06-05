@@ -8,4 +8,6 @@ c+h is fine with me ! idm if u cover me either
 
 if u wanna int i suggest whispering cus im mostly always offtab or doing something irl
 
-dni : basic dni , ranfren , homestuck , hazbin hotel / helluva boss , DOT EYED SKINS. , irls , overly sensitive people , 
+dni : basic dni , ranfren , homestuck , hazbin hotel / helluva boss , DOT EYED SKINS. , irls , overly sensitive people
+
+i dont roleplay as whoever i am sorry
